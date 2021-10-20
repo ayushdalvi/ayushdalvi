@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Computer engineering
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 INSTAGRAM:- @dalviayushman
 
 <!---
 ayushdalvi/ayushdalvi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
